@@ -1,4 +1,4 @@
-# 
+# top bot de arbitragem MEV scripts é o melhor bot de arbitragem MEV scripts com compra automática e detecção de MEV. Seguro, confiável e otimizado para estratégias MEV, sniper e
 
 
 
